@@ -1,0 +1,4 @@
+- Lil Wayne
+- Drake
+- j.cole
+- mick jenkins
