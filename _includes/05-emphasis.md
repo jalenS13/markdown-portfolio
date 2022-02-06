@@ -1,1 +1,4 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**Empathy and courage also cultivating patience**,
+_we have the power to chage not only our lives in a positive way but the ones around us_
+
+
