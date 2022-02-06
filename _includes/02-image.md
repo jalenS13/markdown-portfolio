@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![perservere](https://https://cdn.lifehack.org/wp-content/uploads/2018/01/29024611/quote-7-in-post-.png)
